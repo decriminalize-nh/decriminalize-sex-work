@@ -1,0 +1,1 @@
+- 2020-10-21: [Analysis of more than 80 studies on the impacts of decriminalization shows that any form of criminalization harms adult sex workers](https://web.archive.org/web/20201101143856/https://www.aclu.org/press-releases/aclu-analysis-finds-decriminalizing-sex-work-improves-public-health-and-public-safety)
