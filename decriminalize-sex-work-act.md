@@ -22,3 +22,20 @@ Whereas, research suggests that the decriminalization of sex work does not neces
 
 Whereas, rather than have resources depleted by investigating, arresting, prosecuting, and punishing consenting adults involved in the sex trade, law enforcement should focus on preventing and prosecuting non-consensual sex crimes against adults and minors, including sexual assault, rape, and slavery.
 
+The People of New Hampshire therefore propose this Decriminalize Sex Work Act of 2020 to end the criminalization of adult consensual sex work in New Hampshire, keeping legitimate entrepreneurs, workers, and customers out of the black market and focusing law enforcement resources on non-consensual sex crimes.
+
+STATUTES AMENDED AND REPEALED
+
+Section 1. (1) RSA 645:2 is amended to read as follows:
+
+645:2 Nonconsensual sex trafficking crimes. –  
+I. If the violation either involves another person who is under the age of 16 or involved compelling another person by force or intimidation, a person is guilty of a class B felony if such person:  
+(a) Solicits, agrees to perform, or engages in sexual contact as defined in RSA 632-A:1, IV or sexual penetration as defined in RSA 632-A:1, V, in return for consideration; or  
+(b) Induces or otherwise purposely causes another to violate subparagraph (a); or  
+(c) Transports another into or within this state with the purpose of promoting or facilitating such other in engaging in conduct in violation of subparagraph (a); or  
+(d) Not being a legal dependent incapable of self support, knowingly is supported in whole or in part by the proceeds of violation of subparagraph (a); or
+(e) Knowingly permits a place under such person's control to be used for violation of subparagraph (a); or
+(f) Pays, agrees to pay, or offers to pay another person to engage in sexual contact as defined in RSA 632-A:1, IV or sexual penetration as defined in RSA 632-A:1, V, with the payor or with another person.   
+II. A person is guilty under this section regardless of the sex of the persons involved.  
+III. A person under 16 years of age shall not be subject to a juvenile delinquency proceeding under RSA 169-B or criminal prosecution for the commission of an offense under subparagraph I(a).  
+IV. In a prosecution under this section, the actor's lack of knowledge of the other person's age shall not constitute a defense.
