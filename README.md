@@ -3,4 +3,5 @@ This repository contains the text of a work in progress bill to decriminalize th
 
 ## Table of contents
 - [How to contribute](https://github.com/decriminalize-nh/contributing/blob/main/README.md)  
+- [The Sex Work Decriminalization Act](sex-work-decriminalization-act.md)  
 - [Supporting resources](resources)  
