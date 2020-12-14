@@ -1,4 +1,4 @@
-THE DECRIMINALIZE SEX WORK ACT
+THE SEX WORK DECRIMINALIZATION ACT
 
 Whereas, prominent and widely-respected health, human rights, and civil liberties advocacy groups such as the American Civil Liberties Union, Amnesty International, Human Rights Campaign, Human Rights Watch, UNAIDS, and the World Health Organization have expressed support for the decriminalization of the adult consensual sex trade.
 
@@ -22,7 +22,7 @@ Whereas, research suggests that the decriminalization of sex work does not neces
 
 Whereas, rather than have resources depleted by investigating, arresting, prosecuting, and punishing consenting adults involved in the sex trade, law enforcement should focus on preventing and prosecuting non-consensual sex crimes against adults and minors, including sexual assault, rape, and slavery.
 
-The People of New Hampshire therefore propose this Decriminalize Sex Work Act of 2020 to end the criminalization of adult consensual sex work in New Hampshire, keeping legitimate entrepreneurs, workers, and customers out of the black market and focusing law enforcement resources on non-consensual sex crimes.
+The People of New Hampshire therefore propose this Sex Work Decriminalization Act of 2020 to end the criminalization of adult consensual sex work in New Hampshire, keeping legitimate entrepreneurs, workers, and customers out of the black market and focusing law enforcement resources on non-consensual sex crimes.
 
 STATUTES AMENDED AND REPEALED
 
