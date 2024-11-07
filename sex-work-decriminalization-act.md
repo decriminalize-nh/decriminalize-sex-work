@@ -22,7 +22,7 @@ Whereas, research suggests that the decriminalization of sex work does not neces
 
 Whereas, rather than have resources depleted by investigating, arresting, prosecuting, and punishing consenting adults involved in the sex trade, law enforcement should focus on preventing and prosecuting non-consensual sex crimes against adults and minors, including sexual assault, rape, and slavery.
 
-The People of New Hampshire therefore propose this Sex Work Decriminalization Act of 2020 to end the criminalization of adult consensual sex work in New Hampshire, keeping legitimate entrepreneurs, workers, and customers out of the black market and focusing law enforcement resources on non-consensual sex crimes.
+The People of New Hampshire therefore propose this Sex Work Decriminalization Act of 20XX to end the criminalization of adult consensual sex work in New Hampshire, keeping legitimate entrepreneurs, workers, and customers out of the black market and focusing law enforcement resources on non-consensual sex crimes.
 
 STATUTES AMENDED AND REPEALED
 
@@ -58,7 +58,7 @@ Section 3. (1) The people of New Hampshire recognize that sex work prohibition h
 
 (5) Money allocated to the Fund shall be distributed as follows:
 
-(a) 90% of the Fund shall be used to provide direct cash payments either (i) to anyone previously convicted as an adult, or adjudicated as a minor, prior to November 1, 2020, for any crime repealed by this Act, or (ii) to their next of kin if the arrestee/convict/adjudicated minor has passed away within the last fifty years, or (iii) to their legal guardian if they are otherwise unable to accept the payment directly.
+(a) 90% of the Fund shall be used to provide direct cash payments either (i) to anyone previously convicted as an adult, or adjudicated as a minor, prior to November 1, 20XX, for any crime repealed by this Act, or (ii) to their next of kin if the arrestee/convict/adjudicated minor has passed away within the last fifty years, or (iii) to their legal guardian if they are otherwise unable to accept the payment directly.
 
 (b) The remaining 10% of the Fund shall be used to provide direct cash payments to any law enforcement officers who have been physically or emotionally harmed in the line of duty while enforcing any of the crimes repealed by this Act.
 
